@@ -1,0 +1,1 @@
+Hi, I’m Philip! It's nice having you here. I'm a curious person and interested in so many things — mainly in the humanities. Classics, linguistics, philosophy, art, history, literature, and all the niche stuff in between... you get the point. You can also check out my blog on [Substack](philipcho.substack.com) — thanks for staying :)!
